@@ -1,1 +1,0 @@
-# proyectocurso.github.io
